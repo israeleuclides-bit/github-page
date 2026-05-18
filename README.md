@@ -7,3 +7,4 @@ A proposta consiste em demonstrar, de forma organizada e acessível, minhas comp
 A escolha dessas ferramentas permite não apenas a construção de um currículo dinâmico, mas também evidencia minha capacidade de utilizar soluções tecnológicas amplamente adotadas no mercado para apresentação de informações, criação de materiais institucionais e desenvolvimento de conteúdo profissional.
 
 Neste portfólio, estão reunidos trabalhos, habilidades técnicas e experiências práticas que refletem minha atuação e evolução profissional.
+
