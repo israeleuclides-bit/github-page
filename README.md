@@ -11,11 +11,14 @@ Neste portfólio, estão reunidos trabalhos, habilidades técnicas e experiênci
 Currículo: 
 https://docs.google.com/document/d/1PsbAQJRWvuVK9bMG-Hgd-D8-PrZdWohHr2r5TrjGIn
 s/edit?usp=sharing 
+
 Slides: 
 https://docs.google.com/presentation/d/145hDm79qZqyFVHgyEd2-arf2MpaPcdL8Bi1tQe4E
 qmg/edit?usp=sharing 
+
 Site: 
 https://sites.google.com/view/israel-euclides-da-silva-teixe?usp=sharing 
+
 Youtube: 
 https://www.youtube.com/watch?v=U6kF1X9eOWg
 
